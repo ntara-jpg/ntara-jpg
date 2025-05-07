@@ -1,2 +1,2 @@
 # Antara Rubio
-hola
+hola, soy estudiante de ingeniería y me gustan las papas fritas
